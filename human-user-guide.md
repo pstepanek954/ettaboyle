@@ -29,7 +29,7 @@ I thrive in fast-paced environments, and love working with creative, driven team
 #### 🔄 Feedback
 - **Candor**: I am open and accepting to direct feedback and give honest and supportive feedback and guidance to my team and peers. I am not afraid of difficult conversations.
 - **Rapid Processing**: I often "get" interpersonal and conceptual things fast. If I need further guidance or clarification I will ask for it, but I am often right with someone and ready to go. I am aware that there is a risk here that this can appear as folding to someone else's direction, so I am actively working to validate that I understand what has been communicated before moving on.
-- **Inspirtaion**: Jed Bartlett ala [The West Wing](https://screenrant.com/west-wing-quotes/#:~:text=1%20%22What's%20Next%3F%22%20%2D%20President%20Bartlet&text=It's%20a%20motivational%20quote%20that,momentum%20of%20the%20team%20going) - "_What's Next_" - It's a motivational quote that his team learns to understand that these two words mean he's ready to move on to the next task and it keeps the momentum of the team going.._
+- **Inspirtaion**: Jed Bartlett ala [The West Wing](https://screenrant.com/west-wing-quotes/#:~:text=1%20%22What's%20Next%3F%22%20%2D%20President%20Bartlet&text=It's%20a%20motivational%20quote%20that,momentum%20of%20the%20team%20going) - "_What's Next_" - _It's a motivational quote that his team learns to understand that these two words mean he's ready to move on to the next task and it keeps the momentum of the team going.._
 ![jed-bartlet](https://user-images.githubusercontent.com/75342807/151851049-c99e6d8f-6a17-4de2-ab26-b29b2672bc2a.jpg)
 
 
