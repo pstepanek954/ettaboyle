@@ -45,3 +45,7 @@ _--- TBD --- I'll add more here soon!_
 - Hobbies: I am active outdoors (biking, trail running, sometimes city running, snowboarding, camping, etc.) Give me fresh air, big trees & birds and I am happy. 
 - Social: I am social and like spending time with friends & loved ones. I go to a lot of concerts, soccer games, bars & restaurants, etc. 
 
+
+
+![rising-tide-Floplan-Blog-banner-1](https://user-images.githubusercontent.com/75342807/151884521-8e843bc5-ae60-479c-a1af-5567c84e6a14.jpg)
+
