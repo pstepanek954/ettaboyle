@@ -7,7 +7,7 @@
 - **Bouncing Around**: After undergrad I was in the Peace Corps in Tanzania for 2 years, followed by 2 years in Denver, then 4 years in Aspen. 
 - **Home 🏡**: I moved to Seattle in 2017 and happily plan to call it home for years to come.
 - **Career**: My [LinkedIn profile](https://www.linkedin.com/in/ettaboyle/) has the best summary of where i've worked and the roles i've held. At my core I am a community strategist. I have about 10 years of experience in B2B & B2C industries building and managing tech communities that increase product engagement through scalable collaboration. I'm also working on my Master's in Communications Leadership at the University of Washington with a focus on Communities and Networks _(exp. graduation Dec., 2022)_. 
-I am passionate about connecting people and building programs that create and nurture diverse communities. 
+I am passionate about connecting people and building programs that create and nurture diverse communities.  _(A bunch of this is just copy/paste from my LinkedIn so it may read a little stuffy 😆)_
 
 
 #### 🌲 Working Environment
